@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AlexOaty
-- 👀 I’m interested in things
+- 👀 I’m interested
 - 🌱 I’m currently learning, shh
 - 💞️ I’m looking 👀
 - 📫 How to reach me: stretch out your arm a little further, you got this :)
